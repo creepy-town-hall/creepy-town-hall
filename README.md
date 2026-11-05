@@ -7,6 +7,11 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
 
+## OUR YUMESHIPPERS / NUMBER 1 FANS!
+
+<a href="https://github.com/FISHTHESEAS" target="_blank">FISHTHESEAS</a> is luneth number 1 fan!! (fisch) 
+
+<a href="https://github.com/thefreddiedary" target="_blank">thefreddiedary</a> is homocidal liu's canon partner! (creepypasta)
 
 
 <img width="1280" height="200" alt="Image" src="https://github.com/user-attachments/assets/c111a57e-56b0-4892-a1b6-17074c9c9da9" />
