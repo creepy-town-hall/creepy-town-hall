@@ -21,6 +21,8 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <a href="https://github.com/theglitchedsystem" target="_blank">theglitchedsystem</a> is Blaze the Cat number 1 fan!
 
+<a href="https://github.com/2099s" target="_blank">2099s</a> i miguel's number one fan!
+
 <img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
 
 ## OUR KINS/FICTKINS!
