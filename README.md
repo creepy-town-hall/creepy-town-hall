@@ -19,4 +19,22 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <a href="https://github.com/pebbledays" target="_blank">pebbledays</a> is umbrean eeveelypics number 1 fan!
 
+<img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
+
+## OUR KINS/FICTKINS!
+
+<a href="https://github.com/FISHTHESEAS" target="_blank">FISHTHESEAS</a> is creepy town's dr monty! (fisch)
+
+<a href="https://github.com/ManicCentipede" target="_blank">ManicCentipede</a> is creepy town's nina hopkins!!
+
+<a href="https://github.com/god-of-stories" target="_blank">god-of-stories</a> is creepy town's loki laufeyson from marvel! ( covers comics , MCU , animated medias , marvel rivals , and features in other medias)
+
+<a href="https://github.com/ChemicaShot" target="_blank">ChemicaShot</a> is creepy town's wemmbu (minecraft youtuber / UNSTABLE SMP) !
+
+<a href="https://github.com/DreamAndRJX" target="_blank">DreamAndRJX</a> is creepy town's Hudson ( pure rotten light )!
+
+<a href="https://github.com/qnakin" target="_blank">qnakin</a> is creepy town's anakin skywalker! (star wars)
+
+<a href="https://github.com/KXEPEC" target="_blank">KXEPEC</a> is creepy town's ticci toby! 
+
 <img width="1280" height="200" alt="Image" src="https://github.com/user-attachments/assets/c111a57e-56b0-4892-a1b6-17074c9c9da9" />
