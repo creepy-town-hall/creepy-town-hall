@@ -1,7 +1,6 @@
 <img width="1280" height="200" alt="Image" src="https://github.com/user-attachments/assets/0aee03f1-0f58-4956-918f-90d4eccc48ec" />
 
 # CREEPY TOWN HALL!!
-<img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
 
 what is creepy town hall? its a place where you can place your creepy nomination in the ata! and ofc i made it for creepypasta/creepy media fans,,, tho non creepy nominations are fully allowed!!!!! 
 
@@ -21,6 +20,8 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <a href="https://github.com/2099s" target="_blank">2099s</a> is miguel's number one fan!
 
+<a href="https://github.com/ChemicalShot" target="_blank">ChemicalShot</a> is wemmbu's number 1 fan! (minecraft youtuber / UNSTABLE SMP) 
+
 <img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
 
 ## OUR KINS/FICTKINS!
@@ -28,8 +29,6 @@ what is creepy town hall? its a place where you can place your creepy nomination
 <a href="https://github.com/FISHTHESEAS" target="_blank">FISHTHESEAS</a> is creepy town's dr monty! (fisch)
 
 <a href="https://github.com/ManicCentipede" target="_blank">ManicCentipede</a> is creepy town's nina hopkins!!
-
-<a href="https://github.com/ChemicalShot" target="_blank">ChemicalShot</a> is wemmbu's number 1 fan! (minecraft youtuber / UNSTABLE SMP) 
 
 <a href="https://github.com/god-of-stories" target="_blank">god-of-stories</a> is creepy town's loki laufeyson from marvel! (marvel) 
 
