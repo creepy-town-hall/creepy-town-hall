@@ -15,7 +15,7 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <a href="https://github.com/DreamsAndRjx" target="_blank">DreamsAndRjx</a> is marcelo's number 1 fan! (bridge mankind collapse)
 
-<a href="https://github.com/god-of-stories" target="_blank">god-of-stories</a> is Mobius m. Mobius's canon partner! (TVA comics + MCU)
+<a href="https://github.com/god-of-stories" target="_blank">god-of-stories</a> is Mobius m. Mobius's canon partner! (TVA (2025) comics + MCU)
 
 <a href="https://github.com/pebbledays" target="_blank">pebbledays</a> is umbrean eeveelypics number 1 fan!
 
@@ -29,7 +29,9 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <a href="https://github.com/ManicCentipede" target="_blank">ManicCentipede</a> is creepy town's nina hopkins!!
 
-<a href="https://github.com/god-of-stories" target="_blank">god-of-stories</a> is creepy town's loki laufeyson from marvel! ( covers comics , MCU , animated medias , marvel rivals , and features in other medias)
+<a href="https://github.com/ChemicalShot" target="_blank">ChemicalShot</a> is wemmbu's number 1 fan! (minecraft youtuber / UNSTABLE SMP) 
+
+<a href="https://github.com/god-of-stories" target="_blank">god-of-stories</a> is creepy town's loki laufeyson from marvel! (marvel) 
 
 <a href="https://github.com/ChemicalShot" target="_blank">ChemicalShot</a> is creepy town's wemmbu (minecraft youtuber / UNSTABLE SMP) !
 
