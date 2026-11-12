@@ -4,6 +4,8 @@
 
 what is creepy town hall? its a place where you can place your creepy nomination in the ata! and ofc i made it for creepypasta/creepy media fans,,, tho non creepy nominations are fully allowed!!!!! 
 
+OWNER OF THIS ACC : <a href="https://github.com/folzin" target="_blank">folzin</a>
+
 <img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
 
 ## OUR YUMESHIPPERS / NUMBER 1 FANS!
@@ -22,9 +24,13 @@ what is creepy town hall? its a place where you can place your creepy nomination
 
 <a href="https://github.com/ChemicalShot" target="_blank">ChemicalShot</a> is wemmbu's number 1 fan! (minecraft youtuber / UNSTABLE SMP) 
 
+<a href="https://github.com/folzin" target="_blank">folzin</a> is jeff the killer number 1 fan and canon boyfriend!!!
+
 <img width="1280" height="129" alt="Image" src="https://github.com/user-attachments/assets/194aa04d-6d03-499a-a544-e6e79a8636cc" />
 
 ## OUR KINS/FICTKINS!
+
+<a href="https://github.com/folzin" target="_blank">folzin</a> is creepy town's yatta! (dandys world)
 
 <a href="https://github.com/FISHTHESEAS" target="_blank">FISHTHESEAS</a> is creepy town's dr monty! (fisch)
 
